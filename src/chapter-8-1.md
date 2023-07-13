@@ -1,4 +1,4 @@
-Chapter 8: Case Studies of Successful Gratitude Journaling - Real-life Examples of Individuals who have Successfully Cultivated a Positive Mindset through Gratitude Journaling
+Real-life Examples of Individuals who have Successfully Cultivated a Positive Mindset through Gratitude Journaling
 ===============================================================================================================================================================================
 
 Gratitude journaling can be a powerful tool for promoting greater peace, happiness, and well-being. In this chapter, we will explore real-life examples of individuals who have successfully cultivated a positive mindset through gratitude journaling.

@@ -1,4 +1,4 @@
-Chapter 3: Starting a Gratitude Practice - Setting Goals and Intentions
+Setting Goals and Intentions
 =======================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace. However, starting a gratitude practice can be challenging without clear goals and intentions. In this chapter, we will explore techniques for setting goals and intentions to start a gratitude practice.

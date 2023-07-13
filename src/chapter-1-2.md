@@ -1,4 +1,4 @@
-Chapter 1: Introduction - Overview of the Book
+Overview of the Book
 ==============================================
 
 Gratitude journaling is a powerful tool for cultivating a positive mindset and promoting greater peace. In this book, we will explore the benefits of gratitude, techniques for starting a gratitude practice, and tips for incorporating gratitude into daily life.

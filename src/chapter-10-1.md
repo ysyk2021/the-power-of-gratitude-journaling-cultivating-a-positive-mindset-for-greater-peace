@@ -1,4 +1,4 @@
-Chapter 10: Conclusion - Recap of Key Points
+Recap of Key Points
 ============================================
 
 In this book, we have explored the power of gratitude journaling for cultivating a positive mindset and greater peace. Here is a recap of key points covered in this book:

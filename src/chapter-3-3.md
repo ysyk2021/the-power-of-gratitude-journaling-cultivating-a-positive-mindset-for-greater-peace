@@ -1,4 +1,4 @@
-Chapter 3: Starting a Gratitude Practice - Identifying Gratitude Triggers
+Identifying Gratitude Triggers
 =========================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace. One way to start a gratitude practice is by identifying gratitude triggers, which are specific people, situations, or things that evoke feelings of gratitude. In this chapter, we will explore techniques for identifying gratitude triggers.

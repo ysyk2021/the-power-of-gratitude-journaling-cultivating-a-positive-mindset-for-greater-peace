@@ -1,4 +1,4 @@
-Chapter 5: Integrating Gratitude into Daily Life - Creating a Gratitude Ritual
+Creating a Gratitude Ritual
 ==============================================================================
 
 Integrating gratitude into daily life can be a powerful way to cultivate a positive mindset and promote greater peace. In this chapter, we will explore how to create a gratitude ritual that can be incorporated into daily routines.

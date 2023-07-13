@@ -1,4 +1,4 @@
-Chapter 5: Integrating Gratitude into Daily Life - Sharing Gratitude with Others
+Sharing Gratitude with Others
 ================================================================================
 
 While gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace, sharing gratitude with others can amplify these benefits even further. In this chapter, we will explore how to share gratitude with others as a way of integrating gratitude into daily life.

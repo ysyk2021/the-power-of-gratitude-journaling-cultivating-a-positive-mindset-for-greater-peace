@@ -1,4 +1,4 @@
-Chapter 4: Techniques for Effective Gratitude Journaling - Enhancing Your Writing Skills
+Enhancing Your Writing Skills
 ========================================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace. In this chapter, we will explore techniques for effective gratitude journaling to enhance your writing skills and maximize the benefits of your practice.

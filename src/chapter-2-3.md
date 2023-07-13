@@ -1,4 +1,4 @@
-Chapter 2: Understanding Gratitude and Its Benefits - Common Myths about Gratitude
+Common Myths about Gratitude
 ==================================================================================
 
 Gratitude is a powerful emotion that can have significant benefits for mental, physical, and emotional well-being. Unfortunately, there are several common myths associated with gratitude that can prevent individuals from fully experiencing its benefits. In this chapter, we will explore these myths and provide accurate information about gratitude.

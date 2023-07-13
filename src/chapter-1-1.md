@@ -1,4 +1,4 @@
-Chapter 1: Introduction - Importance of Gratitude Journaling
+Importance of Gratitude Journaling
 ============================================================
 
 In today's fast-paced and often stressful world, cultivating a positive mindset can be challenging. However, practicing gratitude journaling is a powerful tool for promoting greater peace, happiness, and well-being. In this chapter, we will explore the importance of gratitude journaling.

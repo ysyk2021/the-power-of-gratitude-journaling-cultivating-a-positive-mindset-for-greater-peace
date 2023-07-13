@@ -1,4 +1,4 @@
-Chapter 6: Measuring Success in Gratitude Journaling - Qualitative and Quantitative Methods for Evaluation
+Qualitative and Quantitative Methods for Evaluation
 ==========================================================================================================
 
 Gratitude journaling can have numerous benefits for mental, physical, and emotional well-being. However, measuring the success of a gratitude practice can be challenging. In this chapter, we will explore qualitative and quantitative methods for evaluating the effectiveness of gratitude journaling.

@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of Gratitude Journaling](chapter-1-1.md)
   - [Overview of the Book](chapter-1-2.md)
 - [Chapter 2: Understanding Gratitude and Its Benefits](chapter-2.md)
@@ -32,8 +31,4 @@
   - [Fostering Self-awareness and Emotional Intelligence](chapter-9-1.md)
   - [Developing Resilience and Coping Skills](chapter-9-2.md)
   - [Cultivating a Mindful and Compassionate Attitude](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Recap of Key Points](chapter-10-1.md)
-  - [Final Thoughts on the Power of Gratitude Journaling for Cultivating a Positive Mindset and Greater Peace](chapter-10-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

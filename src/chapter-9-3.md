@@ -1,4 +1,4 @@
-Chapter 9: Integrating Gratitude Journaling with Personal Growth - Cultivating a Mindful and Compassionate Attitude
+Cultivating a Mindful and Compassionate Attitude
 ===================================================================================================================
 
 Gratitude journaling can be a powerful tool for promoting personal growth and cultivating a mindful and compassionate attitude. In this chapter, we will explore how integrating gratitude journaling with personal growth can lead to greater peace and well-being.

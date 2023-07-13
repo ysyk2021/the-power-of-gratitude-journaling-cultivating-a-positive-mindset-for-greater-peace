@@ -1,4 +1,4 @@
-Chapter 3: Starting a Gratitude Practice - Choosing a Gratitude Journal
+Choosing a Gratitude Journal
 =======================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace. One important aspect of starting a gratitude practice is choosing a gratitude journal that works for you. In this chapter, we will explore techniques for choosing a gratitude journal.

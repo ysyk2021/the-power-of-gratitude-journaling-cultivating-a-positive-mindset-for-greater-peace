@@ -1,4 +1,4 @@
-Chapter 9: Integrating Gratitude Journaling with Personal Growth - Fostering Self-awareness and Emotional Intelligence
+Fostering Self-awareness and Emotional Intelligence
 ======================================================================================================================
 
 Gratitude journaling can be a powerful tool for fostering self-awareness and emotional intelligence. In this chapter, we will explore how gratitude journaling can help individuals integrate personal growth with the development of these skills.

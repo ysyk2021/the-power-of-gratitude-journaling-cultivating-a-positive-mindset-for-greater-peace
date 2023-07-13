@@ -1,4 +1,4 @@
-Chapter 9: Integrating Gratitude Journaling with Personal Growth - Developing Resilience and Coping Skills
+Developing Resilience and Coping Skills
 ==========================================================================================================
 
 Integrating gratitude journaling with personal growth can be a powerful way to develop resilience and coping skills. In this chapter, we will explore how gratitude journaling can help individuals navigate challenging situations and build emotional strength.

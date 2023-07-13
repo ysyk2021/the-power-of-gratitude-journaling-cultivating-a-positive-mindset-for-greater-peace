@@ -1,4 +1,4 @@
-Chapter 4: Techniques for Effective Gratitude Journaling - Overcoming Writer's Block
+Overcoming Writer's Block
 ====================================================================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace. However, sometimes individuals may experience writer's block when trying to write in their gratitude journal. In this chapter, we will explore techniques for overcoming writer's block and continuing your gratitude journaling practice.

@@ -1,4 +1,4 @@
-Chapter 7: Overcoming Obstacles to Gratitude Journaling - Common Obstacles to Gratitude Journaling
+Common Obstacles to Gratitude Journaling
 ==================================================================================================
 
 While gratitude journaling can be a powerful tool for promoting greater peace and cultivating a positive mindset, there are common obstacles that can make it difficult to maintain a regular practice. In this chapter, we will explore some of these obstacles and how to overcome them.
