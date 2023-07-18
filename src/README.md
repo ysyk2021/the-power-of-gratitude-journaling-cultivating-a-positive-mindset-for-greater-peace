@@ -10,5 +10,4 @@ Whether you're new to gratitude journaling or looking to take your practice to t
 
 So if you're ready to experience the transformative power of gratitude journaling, this book is for you. Discover the benefits of gratitude, and start cultivating a positive mindset for greater peace and happiness today!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
