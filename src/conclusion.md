@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 10: Conclusion
-======================
-
 Gratitude journaling is a powerful tool for cultivating a positive mindset and promoting greater peace. In this book, we have explored the definition and benefits of gratitude, techniques for starting a gratitude practice, tips for incorporating gratitude into daily life, strategies for overcoming obstacles to gratitude, and case studies of successful gratitude journaling. In this final chapter, we will provide a recap of key points and offer some final thoughts on the power of gratitude journaling for cultivating a positive mindset and greater peace.
 
 Recap of Key Points
