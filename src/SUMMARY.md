@@ -31,3 +31,4 @@
   - [Developing Resilience and Coping Skills](chapter-9-2.md)
   - [Cultivating a Mindful and Compassionate Attitude](chapter-9-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
