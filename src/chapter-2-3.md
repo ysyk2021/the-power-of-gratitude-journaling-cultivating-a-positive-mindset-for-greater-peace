@@ -1,5 +1,3 @@
-Common Myths About Gratitude
-=====================================
 
 In this chapter, we will debunk some common myths surrounding gratitude. These misconceptions often hinder people from fully embracing the practice of gratitude and experiencing its transformative power. By dispelling these myths, we can gain a deeper understanding of gratitude and its role in cultivating a positive mindset for greater peace.
 

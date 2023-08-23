@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Gratitude Journaling
-=======================================================
 
 Gratitude journaling can be a powerful tool for promoting greater peace, happiness, and well-being. However, there are common obstacles that can make it challenging to maintain a regular gratitude practice. In this chapter, we will explore these obstacles and provide strategies for overcoming them.
 

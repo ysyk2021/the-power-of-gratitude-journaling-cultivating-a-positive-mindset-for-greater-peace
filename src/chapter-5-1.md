@@ -1,5 +1,3 @@
-Practicing Gratitude Beyond Journaling
-===============================================
 
 In this chapter, we will explore various ways to practice gratitude beyond journaling. While gratitude journaling is a powerful tool, incorporating gratitude into other aspects of your life can deepen your positive mindset and bring greater peace and fulfillment.
 

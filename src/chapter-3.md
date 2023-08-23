@@ -1,5 +1,3 @@
-Chapter 3: Starting a Gratitude Practice
-========================================
 
 Gratitude journaling can be a powerful tool for cultivating a positive mindset and promoting greater peace. In this chapter, we will explore techniques for starting a gratitude practice.
 

@@ -1,4 +1,3 @@
-# Definition of Gratitude
 
 In this chapter, we will explore the definition of gratitude and its significance in cultivating a positive mindset for greater peace. Gratitude is a powerful emotion that involves recognizing and appreciating the blessings, kindness, and positive experiences in our lives. It is an attitude of thankfulness that can be cultivated through conscious practice and journaling. Let's delve into the essence of gratitude and understand how it can transform our outlook on life.
 

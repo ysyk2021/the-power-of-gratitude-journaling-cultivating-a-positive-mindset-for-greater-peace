@@ -1,5 +1,3 @@
-Fostering Self-Awareness and Emotional Intelligence
-============================================================
 
 In this chapter, we will explore the profound impact of gratitude journaling on fostering self-awareness and developing emotional intelligence. By cultivating these essential skills, you can deepen your understanding of yourself, enhance your relationships, and nurture a positive mindset for greater peace.
 

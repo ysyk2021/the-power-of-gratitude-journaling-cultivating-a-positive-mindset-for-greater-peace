@@ -1,5 +1,3 @@
-Importance of Gratitude Journaling
-===========================================
 
 Gratitude journaling is a powerful practice that can have a profound impact on cultivating a positive mindset and bringing greater peace into our lives. In this chapter, we will explore the importance of gratitude journaling and the numerous benefits it offers.
 

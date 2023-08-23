@@ -1,5 +1,3 @@
-Writing Prompts and Exercises
-======================================
 
 In this chapter, we will explore a variety of writing prompts and exercises to enhance the practice of gratitude journaling. These prompts and exercises are designed to help individuals cultivate a positive mindset and experience greater peace through the power of gratitude.
 

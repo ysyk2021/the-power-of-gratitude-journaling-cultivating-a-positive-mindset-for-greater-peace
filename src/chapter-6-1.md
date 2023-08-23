@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-================================================================
 
 In this chapter, we will explore key performance indicators (KPIs) that can be used to measure the success and effectiveness of gratitude journaling in cultivating a positive mindset and fostering greater peace. These KPIs provide measurable metrics to assess the impact and outcomes of the practice.
 

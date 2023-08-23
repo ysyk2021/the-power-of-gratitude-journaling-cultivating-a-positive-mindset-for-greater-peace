@@ -1,5 +1,3 @@
-Setting Goals and Intentions
-=====================================
 
 Setting goals and intentions is a fundamental aspect of harnessing the power of gratitude journaling to cultivate a positive mindset and achieve greater peace. In this chapter, we will explore how setting goals and intentions can enhance your gratitude practice and guide you towards a more fulfilling and peaceful life.
 

@@ -1,5 +1,3 @@
-Strategies for Overcoming Challenges
-=============================================
 
 In this chapter, we will explore effective strategies for overcoming challenges that may arise during your gratitude journaling practice. By implementing these strategies, you can navigate obstacles and maintain a consistent and fulfilling gratitude practice.
 

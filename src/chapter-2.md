@@ -1,5 +1,3 @@
-Chapter 2: Understanding Gratitude and Its Benefits
-===================================================
 
 Gratitude is a powerful emotion that can have significant benefits for mental, physical, and emotional well-being. In this chapter, we will explore the definition of gratitude, its benefits, and common myths associated with it.
 

@@ -1,5 +1,3 @@
-Chapter 9: Integrating Gratitude Journaling with Personal Growth
-================================================================
 
 Gratitude journaling can be a powerful tool for personal growth, fostering self-awareness, emotional intelligence, resilience, coping skills, mindfulness, and compassion. In this chapter, we will explore how gratitude journaling can help individuals integrate personal growth with the development of these skills.
 

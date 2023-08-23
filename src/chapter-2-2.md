@@ -1,5 +1,3 @@
-Benefits of Gratitude
-==============================
 
 In this chapter, we will explore the numerous benefits of gratitude in cultivating a positive mindset and achieving greater peace in our lives. Understanding the impact that practicing gratitude can have on our well-being encourages us to embrace it as a daily habit.
 

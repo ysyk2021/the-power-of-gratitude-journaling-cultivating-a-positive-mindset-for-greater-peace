@@ -1,5 +1,3 @@
-Common Obstacles to Gratitude Journaling
-=================================================
 
 In this chapter, we will explore common obstacles that may hinder your gratitude journaling practice. By acknowledging and addressing these challenges, you can overcome them and maintain a consistent and meaningful gratitude practice.
 

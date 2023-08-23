@@ -1,5 +1,3 @@
-Choosing a Gratitude Journal
-=====================================
 
 Choosing the right gratitude journal is an essential step in establishing a successful and fulfilling gratitude journaling practice. In this chapter, we will explore key factors to consider when selecting a gratitude journal that aligns with your preferences and supports your journey towards cultivating a positive mindset and greater peace.
 

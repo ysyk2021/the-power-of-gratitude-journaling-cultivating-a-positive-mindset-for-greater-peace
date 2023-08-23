@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-============================================================
 
 Evaluation is a crucial component of any gratitude journaling practice. In this chapter, we will explore qualitative and quantitative methods for evaluating the effectiveness of gratitude journaling in cultivating a positive mindset and greater peace.
 

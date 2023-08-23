@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Gratitude Journaling
-====================================================
 
 Gratitude journaling can have numerous benefits for mental, physical, and emotional well-being. However, measuring the success of a gratitude practice can be challenging. In this chapter, we will explore key performance indicators (KPIs) for measuring success in gratitude journaling and qualitative and quantitative methods for evaluation.
 

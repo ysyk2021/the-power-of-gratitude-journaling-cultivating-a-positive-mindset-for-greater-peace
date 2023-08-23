@@ -1,5 +1,3 @@
-Overcoming Writer's Block
-==================================
 
 In this chapter, we will explore strategies and techniques for overcoming writer's block in the context of gratitude journaling. Writer's block can hinder your ability to express gratitude and impede the progress of your practice. By understanding the causes of writer's block and implementing effective solutions, you can overcome this creative obstacle and continue to cultivate a positive mindset for greater peace.
 

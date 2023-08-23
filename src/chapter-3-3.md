@@ -1,5 +1,3 @@
-Identifying Gratitude Triggers
-=======================================
 
 Identifying gratitude triggers is an essential step in harnessing the power of gratitude journaling to cultivate a positive mindset and achieve greater peace. In this chapter, we will explore the concept of gratitude triggers and how to identify them to enhance our gratitude practice.
 

@@ -1,5 +1,3 @@
-Developing Resilience and Coping Skills
-================================================
 
 In this chapter, we will explore how gratitude journaling can help you develop resilience and coping skills, enabling you to navigate life's challenges with strength and optimism. By cultivating these essential qualities, you can cultivate a positive mindset and find greater peace in your everyday life.
 

@@ -1,5 +1,3 @@
-Creating a Gratitude Ritual
-====================================
 
 In this chapter, we will explore the importance of creating a gratitude ritual and provide practical guidance on how to incorporate gratitude journaling into your daily life. Establishing a consistent gratitude practice can amplify its benefits and bring about lasting positive changes.
 

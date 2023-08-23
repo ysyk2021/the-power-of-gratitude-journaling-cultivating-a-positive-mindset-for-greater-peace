@@ -1,5 +1,3 @@
-Sharing Gratitude with Others
-======================================
 
 In this chapter, we will explore the importance of sharing gratitude with others and how it can deepen our appreciation and connection with those around us. Through acts of kindness, meaningful conversations, and heartfelt expressions of gratitude, we can spread positivity and foster stronger relationships.
 

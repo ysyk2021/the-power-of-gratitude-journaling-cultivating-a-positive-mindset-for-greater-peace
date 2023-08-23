@@ -1,5 +1,3 @@
-Cultivating a Mindful and Compassionate Attitude
-=========================================================
 
 In this chapter, we will explore how gratitude journaling can go beyond simply acknowledging the positive aspects of our lives and help cultivate a mindful and compassionate attitude. By integrating mindfulness and compassion into our gratitude practice, we can deepen our connection with ourselves and others, leading to greater peace and fulfillment.
 

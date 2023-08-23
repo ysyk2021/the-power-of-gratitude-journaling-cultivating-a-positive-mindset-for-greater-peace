@@ -1,5 +1,3 @@
-Chapter 5: Integrating Gratitude into Daily Life
-================================================
 
 Gratitude journaling is a powerful tool for cultivating a positive mindset and promoting greater peace. However, integrating gratitude into daily life can also have significant benefits. In this chapter, we will explore techniques for integrating gratitude into daily life.
 

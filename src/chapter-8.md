@@ -1,5 +1,3 @@
-Chapter 8: Case Studies of Successful Gratitude Journaling
-==========================================================
 
 In this chapter, we will explore real-life examples of individuals who have experienced the transformative power of gratitude journaling in cultivating a positive mindset. These stories serve as inspiration and evidence of how gratitude journaling can bring about greater peace, happiness, and overall well-being.
 

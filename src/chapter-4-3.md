@@ -1,5 +1,3 @@
-Enhancing Your Writing Skills
-======================================
 
 In this chapter, we will explore techniques and strategies for enhancing your writing skills in the context of gratitude journaling. By improving your writing abilities, you can effectively express your thoughts, experiences, and emotions, leading to a more impactful and fulfilling gratitude practice.
 
