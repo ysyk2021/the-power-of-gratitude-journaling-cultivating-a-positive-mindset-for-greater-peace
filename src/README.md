@@ -1,4 +1,3 @@
-# Introduction
 
 In today's fast-paced world, it's easy to get caught up in the stress and negativity of daily life. However, cultivating a positive mindset can make a significant difference in our mental health and wellbeing. One powerful tool for achieving greater peace and positivity is gratitude journaling.
 
